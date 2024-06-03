@@ -53,3 +53,17 @@ restaurar la paz y la armonía en los Cuatro Reinos.
 
 ## Mapa del juego
 
+![image](https://github.com/Botache500/Juegos-Print-and-Play/assets/171523160/7b518f5f-dfa4-4ced-917c-ec175f4b3a9e)
+
+## Mercenarios
+
+![BOLGMUR](https://github.com/Botache500/Juegos-Print-and-Play/assets/171523160/9ab7f7b7-b7f1-4f69-9a5a-23ef250d99a0)
+
+![Ojos de cuerno](https://github.com/Botache500/Juegos-Print-and-Play/assets/171523160/70cc9fd2-3c9b-473e-8611-b8a456fe7819)
+
+## Heroes
+
+![Kimer](https://github.com/Botache500/Juegos-Print-and-Play/assets/171523160/394e10c4-b681-47ee-9782-5bf40c6419d5)
+
+![helzebeth](https://github.com/Botache500/Juegos-Print-and-Play/assets/171523160/48c7d03c-588f-4886-aa49-cd739d82975e)
+
