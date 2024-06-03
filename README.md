@@ -59,7 +59,7 @@ restaurar la paz y la armonía en los Cuatro Reinos.
 
 ![BOLGMUR](https://github.com/Botache500/Juegos-Print-and-Play/assets/171523160/9ab7f7b7-b7f1-4f69-9a5a-23ef250d99a0)
 
-![Ojos de cuerno](https://github.com/Botache500/Juegos-Print-and-Play/assets/171523160/70cc9fd2-3c9b-473e-8611-b8a456fe7819)
+![file](https://github.com/Botache500/Juegos-Print-and-Play/assets/171523160/7e375db5-5bc9-43c2-8fbe-d9c5adc38d47)
 
 ## Heroes
 
@@ -67,3 +67,6 @@ restaurar la paz y la armonía en los Cuatro Reinos.
 
 ![helzebeth](https://github.com/Botache500/Juegos-Print-and-Play/assets/171523160/48c7d03c-588f-4886-aa49-cd739d82975e)
 
+## Por ultimo
+
+Esperamos que esta informacion te motive a aventurarte en estos reinos y ser el mejor!
